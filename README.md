@@ -1,0 +1,1 @@
+» DRG-INT@protonmail.com « (UNICAGD account) >> For any additional permissions, simply send a formal request by email. Everything is open for discussion. A free safety net is also available: if you are unsure about any permitted use, just ask before proceeding.
